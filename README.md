@@ -1,2 +1,2 @@
 # android-studio-settings
-Custom settings for android studio
+Find me @ +254726266668
